@@ -1,2 +1,4 @@
 Hi Rina!!!!
-Welcome
+Welcome nerd!
+Have fun
+Good Day
